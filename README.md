@@ -2,6 +2,11 @@
 **A Passionate Software Developer**
 
 Email Me 👉 ✉️ **mahtab6kn@gmail.com** For Collaboration/Project or Anything Else. 😊😊
+
+# 💫 About Me:
+🔭 I’m developing meaningful tech projects and exploring new tools and technologies.<br>👯 Enhancing my skills in Web and App Development to create better digital experiences.<br>🤝 Open to working on open-source projects that deliver real value and positive impact.<br>🌱 Programming, technology—always happy to share insights or help where I can.<br>💬 contact at Email: mahtab6kn@gmail.com<br>⚡ I’m a coffee lover and an enthusiast of sci-fi films, gaming, traveling, and exploring new places.
+
+
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/mahtabshaikh83) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/mahtab-alam-b57a66271) [![X](https://img.shields.io/badge/X-black.svg?logo=X&logoColor=white)](https://x.com/@mahtab6kn) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:mahtab6kn@gmail.com) 
 
