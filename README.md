@@ -8,7 +8,6 @@ Email Me 👉 ✉️ **mahtab6kn@gmail.com** For Collaboration/Project or Anythi
 📱 Enhancing my skills in Web and App Development to create better digital experiences.<br>
 🌍 Open to contributing to open-source projects that create real value and positive impact.<br>
 💡 Interested in programming and technology—always happy to share knowledge or help.<br>
-✉️ Contact: mahtab6kn@gmail.com<br>
 ☕ Fun Fact: I love coffee, sci-fi films, gaming, traveling, and exploring new places.
 
 
