@@ -4,7 +4,12 @@
 Email Me 👉 ✉️ **mahtab6kn@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 # 💫 About Me:
-🔭 I’m developing meaningful tech projects and exploring new tools and technologies.<br>👯 Enhancing my skills in Web and App Development to create better digital experiences.<br>🤝 Open to working on open-source projects that deliver real value and positive impact.<br>🌱 Programming, technology—always happy to share insights or help where I can.<br>💬 contact at Email: mahtab6kn@gmail.com<br>⚡ I’m a coffee lover and an enthusiast of sci-fi films, gaming, traveling, and exploring new places.
+🚀 I’m developing meaningful tech projects and exploring new tools and technologies.<br>
+📱 Enhancing my skills in Web and App Development to create better digital experiences.<br>
+🌍 Open to contributing to open-source projects that create real value and positive impact.<br>
+💡 Interested in programming and technology—always happy to share knowledge or help.<br>
+✉️ Contact: mahtab6kn@gmail.com<br>
+☕ Fun Fact: I love coffee, sci-fi films, gaming, traveling, and exploring new places.
 
 
 ## 🌐 Socials:
